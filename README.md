@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MNJAA
+- 👀 I’m interested in CODING
+- 🌱 I’m currently learning PROGRAMMING
+- 📫 How to reach me ...Why?
